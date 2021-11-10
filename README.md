@@ -7,3 +7,7 @@ or here
 
 The greatest enemy of knowledge is not ignorance, it is the illusion of knowledge
 - Daniel Boorstin 
+
+
+Ambition is putting a ladder against the sky.
+- Anonymous 
