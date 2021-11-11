@@ -11,3 +11,7 @@ The greatest enemy of knowledge is not ignorance, it is the illusion of knowledg
 
 Ambition is putting a ladder against the sky.
 - Anonymous 
+
+
+The key to happiness is good health and a bad memory
+- Ingrid Bergman
