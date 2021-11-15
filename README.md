@@ -19,3 +19,7 @@ The key to happiness is good health and a bad memory
 
 Prove Them Wrong
 - Anonymous 
+
+
+Don't explain your philosophy. Embody it.
+- Epictetus 
