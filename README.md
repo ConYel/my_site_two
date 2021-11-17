@@ -26,3 +26,7 @@ Don't explain your philosophy. Embody it.
 
  Those who lack the courage will always find a philosophy to justify it.
 - Albert Camus
+
+
+Discontent is the first necessity of progress.
+- Thomas Edison 
