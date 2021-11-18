@@ -30,3 +30,6 @@ Don't explain your philosophy. Embody it.
 
 Discontent is the first necessity of progress.
 - Thomas Edison 
+
+ Freedom is a state of mind.
+- Anonymous
