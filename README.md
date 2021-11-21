@@ -34,8 +34,8 @@ Discontent is the first necessity of progress.
  Freedom is a state of mind.
 - Anonymous
 
+ Nobody dies a virgin. Life fucks us all.
+- Kurt Cobain  
 
 Be Courageous: Succeed or Fail Monumentally
 - Ken Poirot 
- Nobody dies a virgin. Life fucks us all.
-- Kurt Cobain
