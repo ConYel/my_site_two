@@ -39,3 +39,6 @@ Discontent is the first necessity of progress.
 
 Be Courageous: Succeed or Fail Monumentally
 - Ken Poirot 
+
+Ambition is the last refuge of failure.
+- Oscar Wilde 
