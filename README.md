@@ -42,3 +42,6 @@ Be Courageous: Succeed or Fail Monumentally
 
 Ambition is the last refuge of failure.
 - Oscar Wilde 
+
+Well begun is half done.
+- Aristotle 
