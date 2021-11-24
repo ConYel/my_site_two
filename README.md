@@ -44,4 +44,7 @@ Ambition is the last refuge of failure.
 - Oscar Wilde 
 
 Well begun is half done.
-- Aristotle 
+- Aristotle  
+
+If you have the courage to Begin, you have the courage to Succeed
+- David Viscott 
