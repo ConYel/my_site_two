@@ -48,3 +48,6 @@ Well begun is half done.
 
 If you have the courage to Begin, you have the courage to Succeed
 - David Viscott 
+
+The frog in the well knows nothing of the sea
+- Japanese Proverbs 
