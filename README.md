@@ -54,3 +54,6 @@ The frog in the well knows nothing of the sea
 
 Don't wait for opportunity, Create it
 - Anonymous
+
+Some beautiful paths can’t be discovered without getting lost.
+- Anonymous 
