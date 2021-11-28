@@ -32,7 +32,10 @@ Discontent is the first necessity of progress.
 - Thomas Edison 
 
  Freedom is a state of mind.
-- Anonymous
+- Anonymous  
+
+ Freedom is being yourself without permission
+- Anonymous  
 
  Nobody dies a virgin. Life fucks us all.
 - Kurt Cobain  
