@@ -60,3 +60,6 @@ Don't wait for opportunity, Create it
 
 Some beautiful paths can’t be discovered without getting lost.
 - Anonymous 
+
+He who has a why to live can bear almost any how.
+- Friedrich Nietzsche 
