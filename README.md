@@ -63,3 +63,8 @@ Some beautiful paths can’t be discovered without getting lost.
 
 He who has a why to live can bear almost any how.
 - Friedrich Nietzsche 
+
+
+Generosity: The habit of giving freely without expecting anything in return.
+- Anonymous  
+
