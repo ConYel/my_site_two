@@ -69,3 +69,6 @@ Generosity: The habit of giving freely without expecting anything in return.
 
 Quality means doing it right, When no one is looking
 - Henry Ford 
+
+Common sense needs to be more common.
+- Phil McGraw 
