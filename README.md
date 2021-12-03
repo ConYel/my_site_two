@@ -72,3 +72,6 @@ Quality means doing it right, When no one is looking
 
 Common sense needs to be more common.
 - Phil McGraw 
+
+The two most powerful warriors are patience and time
+- Leo Tolstoy 
