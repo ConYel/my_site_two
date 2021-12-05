@@ -75,3 +75,6 @@ Common sense needs to be more common.
 
 The two most powerful warriors are patience and time
 - Leo Tolstoy 
+
+A man who masters patience masters everything else.
+- George Savile 
