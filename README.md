@@ -78,3 +78,6 @@ The two most powerful warriors are patience and time
 
 A man who masters patience masters everything else.
 - George Savile 
+
+All great achievements require time
+- Maya Angelou 
