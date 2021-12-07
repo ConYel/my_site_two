@@ -37,6 +37,9 @@ Discontent is the first necessity of progress.
  Freedom is being yourself without permission
 - Anonymous  
 
+Freedom is obedience to self- formulated rules.
+- Aristotle 
+
  Nobody dies a virgin. Life fucks us all.
 - Kurt Cobain  
 
