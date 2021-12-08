@@ -84,3 +84,6 @@ A man who masters patience masters everything else.
 
 All great achievements require time
 - Maya Angelou 
+
+Without courage, wisdom bears no fruit
+- Baltasar Gracian
