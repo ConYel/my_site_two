@@ -87,3 +87,6 @@ All great achievements require time
 
 Without courage, wisdom bears no fruit
 - Baltasar Gracian
+
+ Fear is incomplete knowledge.
+- Agatha Christie
