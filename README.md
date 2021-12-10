@@ -90,3 +90,6 @@ Without courage, wisdom bears no fruit
 
  Fear is incomplete knowledge.
 - Agatha Christie
+
+ Freedom lies in being bold.
+- Robert Frost  
