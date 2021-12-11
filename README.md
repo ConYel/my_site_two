@@ -93,3 +93,6 @@ Without courage, wisdom bears no fruit
 
  Freedom lies in being bold.
 - Robert Frost  
+
+Elegance is the only beauty that never fades
+- Audrey Hepburn 
