@@ -96,3 +96,6 @@ Without courage, wisdom bears no fruit
 
 Elegance is the only beauty that never fades
 - Audrey Hepburn 
+
+ What you are will show in what you do
+- Thomas Edison  
