@@ -99,3 +99,6 @@ Elegance is the only beauty that never fades
 
  What you are will show in what you do
 - Thomas Edison  
+
+ Just because it's never been done, doesn't mean it can't be done.
+- Robin Sharma  
