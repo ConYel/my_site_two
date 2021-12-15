@@ -102,3 +102,6 @@ Elegance is the only beauty that never fades
 
  Just because it's never been done, doesn't mean it can't be done.
 - Robin Sharma  
+
+ Life is simple. It's just not easy.
+- Anonymous  
