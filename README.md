@@ -105,3 +105,6 @@ Elegance is the only beauty that never fades
 
  Life is simple. It's just not easy.
 - Anonymous  
+
+It matters if you just don't give up.
+- Stephen Hawking 
