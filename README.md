@@ -108,3 +108,6 @@ Elegance is the only beauty that never fades
 
 It matters if you just don't give up.
 - Stephen Hawking 
+
+Judge your success by what you had to give up in order to get it.
+- Dalai Lama 
