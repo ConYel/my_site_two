@@ -111,3 +111,6 @@ It matters if you just don't give up.
 
 Judge your success by what you had to give up in order to get it.
 - Dalai Lama 
+
+First say to yourself what you would be, and then do what you have to do.
+- Epictetus
