@@ -114,3 +114,6 @@ Judge your success by what you had to give up in order to get it.
 
 First say to yourself what you would be, and then do what you have to do.
 - Epictetus
+
+ To learn to succeed, you must first learn to fail.
+- Michael Jordan
