@@ -116,4 +116,7 @@ First say to yourself what you would be, and then do what you have to do.
 - Epictetus
 
  To learn to succeed, you must first learn to fail.
-- Michael Jordan
+- Michael Jordan  
+
+ An unexamined life is not worth living.
+- Socrates
