@@ -120,3 +120,6 @@ First say to yourself what you would be, and then do what you have to do.
 
  An unexamined life is not worth living.
 - Socrates
+
+I am a slow walker, but I never walk back.
+- Abraham Lincoln 
