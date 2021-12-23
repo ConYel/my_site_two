@@ -122,4 +122,7 @@ First say to yourself what you would be, and then do what you have to do.
 - Socrates
 
 I am a slow walker, but I never walk back.
-- Abraham Lincoln 
+- Abraham Lincoln
+
+In the beginning there was nothing, which exploded
+- Terry Pratchett
