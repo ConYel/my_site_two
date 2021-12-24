@@ -126,3 +126,6 @@ I am a slow walker, but I never walk back.
 
 In the beginning there was nothing, which exploded
 - Terry Pratchett
+
+It's kind of fun to do the impossible.
+- Walt Disney 
