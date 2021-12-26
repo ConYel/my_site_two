@@ -130,5 +130,8 @@ In the beginning there was nothing, which exploded
 It's kind of fun to do the impossible.
 - Walt Disney 
 
- The mind that is anxious about future events is miserable.
+The mind that is anxious about future events is miserable.
 - Seneca  
+
+Be specific with your words. The deal is in the detail.
+- Genie
