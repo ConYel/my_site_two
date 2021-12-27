@@ -135,3 +135,6 @@ The mind that is anxious about future events is miserable.
 
 Be specific with your words. The deal is in the detail.
 - Genie
+
+Failure is success, If we learn from it.
+- Malcolm Forbes 
