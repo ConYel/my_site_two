@@ -138,3 +138,6 @@ Be specific with your words. The deal is in the detail.
 
 Failure is success, If we learn from it.
 - Malcolm Forbes 
+
+Know the rules well, so you can break them effectively.
+- Dalai Lama 
