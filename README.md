@@ -141,3 +141,6 @@ Failure is success, If we learn from it.
 
 Know the rules well, so you can break them effectively.
 - Dalai Lama 
+
+Take every chance you get in life, because some things only happen once
+- Karen Gibbs  
