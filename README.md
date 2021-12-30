@@ -144,3 +144,6 @@ Know the rules well, so you can break them effectively.
 
 Take every chance you get in life, because some things only happen once
 - Karen Gibbs  
+
+Take anything and everything seriously, except yourselves.
+- Rudyard Kipling
