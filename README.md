@@ -147,3 +147,6 @@ Take every chance you get in life, because some things only happen once
 
 Take anything and everything seriously, except yourselves.
 - Rudyard Kipling
+
+I don't have a problem with anger. I have a problem with idiots.
+- Anonymous
