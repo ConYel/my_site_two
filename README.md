@@ -152,7 +152,10 @@ I don't have a problem with anger. I have a problem with idiots.
 - Anonymous
 
 Tomorrow, is the first blank page of a 365 page book. Write a good one.
-― Brad Paisley
+- Brad Paisley  
 
 Be yourself; everyone else is already taken.
-― Oscar Wilde
+- Oscar Wilde  
+
+Without music, life would be a mistake.
+- Friedrich Nietzsche  
