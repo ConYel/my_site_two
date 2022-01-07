@@ -146,16 +146,16 @@ Take every chance you get in life, because some things only happen once
 Take anything and everything seriously, except yourselves.  
 ― Rudyard Kipling
 
-I don't have a problem with anger. I have a problem with idiots.  
+I don't have a problem with anger. I have a problem with idiots.    
 ― Anonymous
 
-Tomorrow, is the first blank page of a 365 page book. Write a good one.
+Tomorrow, is the first blank page of a 365 page book. Write a good one.  
 ― Brad Paisley  
 
-Be yourself; everyone else is already taken.
+Be yourself; everyone else is already taken.  
 ― Oscar Wilde  
 
-Without music, life would be a mistake.
+Without music, life would be a mistake.  
 ― Friedrich Nietzsche  
 
 It is never too late to be what you might have been.  
@@ -163,5 +163,6 @@ It is never too late to be what you might have been.
 
 A day without laughter is a day wasted.  
 ― Nicolas Chamfort   
+
 You shall be told what pleased me to-day in the writings of Hecato; it is these words: "What progress, you ask, have I made? I have begun to be a friend to myself." That was indeed a great benefit; such a person can never be alone. You may be sure that such a man is a friend to all mankind.  
 ― Seneca  
