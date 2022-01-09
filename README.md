@@ -166,3 +166,6 @@ A day without laughter is a day wasted.
 
 You shall be told what pleased me to-day in the writings of Hecato; it is these words: "What progress, you ask, have I made? I have begun to be a friend to myself." That was indeed a great benefit; such a person can never be alone. You may be sure that such a man is a friend to all mankind.  
 ― Seneca  
+
+Do what is right, not what is easy nor what is popular.  
+― Roy T. Bennett  
