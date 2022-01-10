@@ -169,3 +169,6 @@ You shall be told what pleased me to-day in the writings of Hecato; it is these 
 
 Do what is right, not what is easy nor what is popular.  
 ― Roy T. Bennett  
+
+Man is always prey to his truths. Once he has admitted them, he cannot free himself from them.  
+― Albert Camus  
