@@ -172,3 +172,6 @@ Do what is right, not what is easy nor what is popular.
 
 Man is always prey to his truths. Once he has admitted them, he cannot free himself from them.  
 ― Albert Camus  
+
+The weak are always anxious for justice and equality. The strong pay no heed to either.  
+― Aristotle  
