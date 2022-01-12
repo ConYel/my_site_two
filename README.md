@@ -175,3 +175,6 @@ Man is always prey to his truths. Once he has admitted them, he cannot free hims
 
 The weak are always anxious for justice and equality. The strong pay no heed to either.  
 ― Aristotle  
+
+The government you elect is the government you deserve.  
+― Thomas Jefferson  
