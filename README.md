@@ -178,3 +178,6 @@ The weak are always anxious for justice and equality. The strong pay no heed to 
 
 The government you elect is the government you deserve.  
 ― Thomas Jefferson  
+
+Good things are hard earned  
+― Aristotle  
