@@ -181,3 +181,6 @@ The government you elect is the government you deserve.
 
 Good things are hard earned  
 ― Aristotle  
+
+The price good men pay for indifference to public affairs is to be ruled by evil men.  
+— Plato  
