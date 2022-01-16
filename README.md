@@ -184,3 +184,6 @@ Good things are hard earned
 
 The price good men pay for indifference to public affairs is to be ruled by evil men.  
 — Plato  
+
+Ignorance, the root and stem of every evil.  
+— Plato  
