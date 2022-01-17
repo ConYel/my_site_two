@@ -187,3 +187,6 @@ The price good men pay for indifference to public affairs is to be ruled by evil
 
 Ignorance, the root and stem of every evil.  
 — Plato  
+
+Good people do not need laws to tell them to act responsibly, while bad people will find a way around the laws  
+— Plato  
