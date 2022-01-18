@@ -190,3 +190,6 @@ Ignorance, the root and stem of every evil.
 
 Good people do not need laws to tell them to act responsibly, while bad people will find a way around the laws  
 — Plato  
+
+Strong minds discuss ideas, average minds discuss events, weak minds discuss people.  
+— Socrates  
