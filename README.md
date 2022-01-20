@@ -193,3 +193,6 @@ Good people do not need laws to tell them to act responsibly, while bad people w
 
 Strong minds discuss ideas, average minds discuss events, weak minds discuss people.  
 — Socrates  
+
+The only stable state is the one in which all men are equal before the law. 
+― Aristotle  
