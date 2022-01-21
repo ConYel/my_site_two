@@ -196,3 +196,6 @@ Strong minds discuss ideas, average minds discuss events, weak minds discuss peo
 
 The only stable state is the one in which all men are equal before the law. 
 ― Aristotle  
+
+Dignity does not consist in possessing honors, but in the consciousness that we deserve them.  
+— Aristotle  
