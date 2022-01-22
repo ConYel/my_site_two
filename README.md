@@ -199,3 +199,5 @@ The only stable state is the one in which all men are equal before the law.
 
 Dignity does not consist in possessing honors, but in the consciousness that we deserve them.  
 — Aristotle  
+
+Don't just learn, experience.
