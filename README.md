@@ -201,3 +201,4 @@ Dignity does not consist in possessing honors, but in the consciousness that we 
 — Aristotle  
 
 Don't just learn, experience.
+Don't just read, absorb.
