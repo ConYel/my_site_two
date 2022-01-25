@@ -203,3 +203,4 @@ Dignity does not consist in possessing honors, but in the consciousness that we 
 Don't just learn, experience.  
 Don't just read, absorb.  
 Don't just change, transform.   
+Don't just relate, advocate.
