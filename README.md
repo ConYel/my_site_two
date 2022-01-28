@@ -206,3 +206,4 @@ Don't just change, transform.
 Don't just relate, advocate.  
 Don't just promise, prove.  
 Don't just criticize, encourage.  
+Don't just think, ponder.  
