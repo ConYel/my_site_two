@@ -208,3 +208,4 @@ Don't just promise, prove.
 Don't just criticize, encourage.  
 Don't just think, ponder.  
 Don't just take, give.  
+Don't just see, feel.  
