@@ -212,3 +212,4 @@ Don't just see, feel.
 Don’t just dream, do.  
 Don't just hear, listen.  
 Don't just talk, act.  
+Don't just tell, show.  
