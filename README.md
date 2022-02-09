@@ -219,3 +219,5 @@ Don't just exist, live.
 A room without books is like a body without a soul.  
 — Marcus Tullius Cicero   
 
+Don’t Panic and Always Carry a Towel  
+― Douglas Adams, The Hitchhiker's Guide to the Galaxy 
