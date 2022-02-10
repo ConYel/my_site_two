@@ -221,3 +221,6 @@ A room without books is like a body without a soul.
 
 Don’t Panic and Always Carry a Towel  
 ― Douglas Adams, The Hitchhiker's Guide to the Galaxy 
+
+Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons.  
+― Ralph Waldo Emerson  
