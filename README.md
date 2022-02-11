@@ -224,3 +224,6 @@ Don’t Panic and Always Carry a Towel
 
 Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons.  
 ― Ralph Waldo Emerson  
+
+He who has many friends has no friends.  
+― Aristotle   
