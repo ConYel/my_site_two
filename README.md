@@ -227,3 +227,6 @@ Every man has his own courage, and is betrayed because he seeks in himself the c
 
 He who has many friends has no friends.  
 ― Aristotle   
+
+Patience is bitter, but its fruit is sweet.  
+― Aristotle  
