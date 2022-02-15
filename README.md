@@ -230,3 +230,6 @@ He who has many friends has no friends.
 
 Patience is bitter, but its fruit is sweet.  
 ― Aristotle  
+
+Only the development of compassion and understanding for others can bring us the tranquility and happiness we all seek.  
+― Dalai Lama XIV   
