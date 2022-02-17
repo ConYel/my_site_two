@@ -231,3 +231,6 @@ Only the development of compassion and understanding for others can bring us the
 
 Love does not consist of gazing at each other, but in looking outward together in the same direction.  
 ― Antoine de Saint-Exupéry  
+
+In calmness lies true pleasure.  
+― Victor Hugo  
