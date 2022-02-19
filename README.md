@@ -237,3 +237,6 @@ In calmness lies true pleasure.
 
 Some humans would do anything to see if it was possible to do it. If you put a large switch in some cave somewhere, with a sign on it saying 'End-of-the-World Switch. PLEASE DO NOT TOUCH', the paint wouldn't even have time to dry.    
 ― Terry Pratchett, Thief of Time  
+
+The energy of the mind is the essence of life.  
+― Aristotle  
