@@ -240,3 +240,6 @@ Some humans would do anything to see if it was possible to do it. If you put a l
 
 The energy of the mind is the essence of life.  
 ― Aristotle  
+
+The strongest of all warriors are these two — Time and Patience.  
+― Leo Tolstoy  
