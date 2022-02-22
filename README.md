@@ -243,3 +243,6 @@ The energy of the mind is the essence of life.
 
 The strongest of all warriors are these two — Time and Patience.  
 ― Leo Tolstoy  
+
+Do what is right, not what is easy nor what is popular.   
+― Roy T. Bennett  
