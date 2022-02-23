@@ -246,3 +246,6 @@ The strongest of all warriors are these two — Time and Patience.
 
 Do what is right, not what is easy nor what is popular.   
 ― Roy T. Bennett  
+
+Our deeds determine us, as much as we determine our deeds.  
+― George Eliot  
