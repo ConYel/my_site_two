@@ -249,3 +249,6 @@ Do what is right, not what is easy nor what is popular.
 
 Our deeds determine us, as much as we determine our deeds.  
 ― George Eliot  
+
+The Master said, “A true gentleman is one who has set his heart upon the Way. A fellow who is ashamed merely of shabby clothing or modest meals is not even worth conversing with.” (Analects 4.9)  
+― Confucius  
