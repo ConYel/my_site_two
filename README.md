@@ -252,3 +252,6 @@ Our deeds determine us, as much as we determine our deeds.
 
 The Master said, “A true gentleman is one who has set his heart upon the Way. A fellow who is ashamed merely of shabby clothing or modest meals is not even worth conversing with.” (Analects 4.9)  
 ― Confucius  
+
+It is forbidden to kill; therefore all murderers are punished unless they kill in large numbers and to the sound of trumpets.  
+― Voltaire  
