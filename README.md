@@ -255,3 +255,6 @@ The Master said, “A true gentleman is one who has set his heart upon the Way. 
 
 It is forbidden to kill; therefore all murderers are punished unless they kill in large numbers and to the sound of trumpets.  
 ― Voltaire  
+
+Older men declare war. But it is youth that must fight and die.  
+― Herbert Hoover  
