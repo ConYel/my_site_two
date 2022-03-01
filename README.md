@@ -258,3 +258,6 @@ It is forbidden to kill; therefore all murderers are punished unless they kill i
 
 Older men declare war. But it is youth that must fight and die.  
 ― Herbert Hoover  
+
+The bad man is continually at war with, and in opposition to, himself.  
+― Aristotle   
