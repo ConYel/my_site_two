@@ -261,3 +261,6 @@ Older men declare war. But it is youth that must fight and die.
 
 The bad man is continually at war with, and in opposition to, himself.  
 ― Aristotle   
+
+I cannot teach anybody anything. I can only make them think.  
+― Socrates  
