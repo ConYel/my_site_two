@@ -264,3 +264,6 @@ The bad man is continually at war with, and in opposition to, himself.
 
 I cannot teach anybody anything. I can only make them think.  
 ― Socrates  
+
+War does not determine who is right — only who is left.  
+― Anonymous   
