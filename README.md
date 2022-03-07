@@ -267,3 +267,6 @@ I cannot teach anybody anything. I can only make them think.
 
 War does not determine who is right — only who is left.  
 ― Anonymous   
+
+You must train your intuition - you must trust the small voice inside you which tells you exactly what to say, what to decide.  
+― Ingrid Bergman   
