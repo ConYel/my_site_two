@@ -270,3 +270,6 @@ War does not determine who is right — only who is left.
 
 You must train your intuition - you must trust the small voice inside you which tells you exactly what to say, what to decide.  
 ― Ingrid Bergman   
+
+Perfection is achieved, not when there is nothing more to add, but when there is nothing left to take away.  
+— Antoine de Saint-Exupéry (Airman's Odyssey) 
