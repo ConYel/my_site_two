@@ -273,3 +273,6 @@ You must train your intuition - you must trust the small voice inside you which 
 
 Perfection is achieved, not when there is nothing more to add, but when there is nothing left to take away.  
 — Antoine de Saint-Exupéry (Airman's Odyssey) 
+
+A goal without a plan is just a wish.  
+― Antoine de Saint-Exupéry   
