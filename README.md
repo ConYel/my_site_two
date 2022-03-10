@@ -276,3 +276,6 @@ Perfection is achieved, not when there is nothing more to add, but when there is
 
 A goal without a plan is just a wish.  
 ― Antoine de Saint-Exupéry   
+
+I would rather be a devil in alliance with truth, than an angel in alliance with falsehood.  
+— Ludwig Feuerbach (The Essence of Christianity)  
