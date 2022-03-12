@@ -280,6 +280,8 @@ A goal without a plan is just a wish.
 I would rather be a devil in alliance with truth, than an angel in alliance with falsehood.  
 — Ludwig Feuerbach (The Essence of Christianity)  
 
-
 Learn when's a good time to shut up  
 — Phil McGraw  
+
+To live is the rarest thing in the world. Most people exist, that is all.  
+― Oscar Wilde  
