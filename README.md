@@ -285,3 +285,6 @@ Learn when's a good time to shut up
 
 To live is the rarest thing in the world. Most people exist, that is all.  
 ― Oscar Wilde  
+
+If it can be destroyed by the truth, it deserves to be destroyed by the truth.  
+― Carl Sagan   
