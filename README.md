@@ -288,3 +288,6 @@ To live is the rarest thing in the world. Most people exist, that is all.
 
 If it can be destroyed by the truth, it deserves to be destroyed by the truth.  
 ― Carl Sagan   
+
+I do not feel obliged to believe that the same God who has endowed us with sense, reason, and intellect has intended us to forgo their use.  
+― Galileo Galilei  
