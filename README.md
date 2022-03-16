@@ -291,3 +291,6 @@ If it can be destroyed by the truth, it deserves to be destroyed by the truth.
 
 I do not feel obliged to believe that the same God who has endowed us with sense, reason, and intellect has intended us to forgo their use.  
 ― Galileo Galilei  
+
+If you tell the truth, you don't have to remember anything.   
+― Mark Twain  
