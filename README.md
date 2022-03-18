@@ -297,3 +297,6 @@ If you tell the truth, you don't have to remember anything.
 
 Be careful about reading health books. Some fine day you'll die of a misprint.  
 ― Markus Herz  
+
+Nothing happens until something moves.  
+― Albert Einstein   
