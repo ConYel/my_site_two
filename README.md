@@ -303,3 +303,6 @@ Nothing happens until something moves.
 
 The truth is rarely pure and never simple.  
 — Oscar Wilde
+
+There may be a great fire in our soul, yet no one ever comes to warm himself at it, and the passers-by see only a wisp of smoke.  
+― Vincent van Gogh 
