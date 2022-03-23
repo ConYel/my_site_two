@@ -306,3 +306,6 @@ The truth is rarely pure and never simple.
 
 There may be a great fire in our soul, yet no one ever comes to warm himself at it, and the passers-by see only a wisp of smoke.  
 ― Vincent van Gogh 
+
+It's enough for me to be sure that you and I exist at this moment.   
+― Gabriel García Márquez, One Hundred Years of Solitude   
