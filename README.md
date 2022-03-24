@@ -309,3 +309,6 @@ There may be a great fire in our soul, yet no one ever comes to warm himself at 
 
 It's enough for me to be sure that you and I exist at this moment.   
 ― Gabriel García Márquez, One Hundred Years of Solitude   
+
+The snake which cannot cast its skin has to die. As well the minds which are prevented from changing their opinions; they cease to be mind.   
+― Friedrich Nietzsche  
