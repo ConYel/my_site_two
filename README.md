@@ -312,3 +312,6 @@ It's enough for me to be sure that you and I exist at this moment.
 
 The snake which cannot cast its skin has to die. As well the minds which are prevented from changing their opinions; they cease to be mind.   
 ― Friedrich Nietzsche  
+
+You have your way. I have my way. As for the right way, the correct way, and the only way, it does not exist.  
+― Friedrich Nietzsche  
