@@ -315,3 +315,6 @@ The snake which cannot cast its skin has to die. As well the minds which are pre
 
 You have your way. I have my way. As for the right way, the correct way, and the only way, it does not exist.  
 ― Friedrich Nietzsche  
+
+I once asked a young dissertation writer whether her suddenly grayed hair was due to ill health or personal tragedy; she answered: “It was the footnotes”.  
+― Joanna Russ, How to Suppress Women's Writing    
