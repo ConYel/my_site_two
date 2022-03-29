@@ -177,6 +177,9 @@ The government you elect is the government you deserve.
 Good things are hard earned  
 ― Aristotle  
 
+If women are expected to do the same work as men, we must teach them the same things.  
+― Plato, The Republic   
+
 The price good men pay for indifference to public affairs is to be ruled by evil men.  
 — Plato  
 
