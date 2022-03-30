@@ -321,3 +321,6 @@ You have your way. I have my way. As for the right way, the correct way, and the
 
 I once asked a young dissertation writer whether her suddenly grayed hair was due to ill health or personal tragedy; she answered: “It was the footnotes”.  
 ― Joanna Russ, How to Suppress Women's Writing    
+
+... a mind needs books as a sword needs a whetstone, if it is to keep its edge.  
+― George R.R. Martin, A Game of Thrones   
