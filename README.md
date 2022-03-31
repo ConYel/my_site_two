@@ -324,3 +324,6 @@ I once asked a young dissertation writer whether her suddenly grayed hair was du
 
 ... a mind needs books as a sword needs a whetstone, if it is to keep its edge.  
 ― George R.R. Martin, A Game of Thrones   
+
+Reading is to the mind what exercise is to the body.  
+― Joseph Addison   
