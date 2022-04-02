@@ -330,3 +330,6 @@ Reading is to the mind what exercise is to the body.
 
 Stories of imagination tend to upset those without one.   
 — Terry Pratchett  
+
+We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.  
+― Plato  
