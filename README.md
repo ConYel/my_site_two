@@ -336,3 +336,6 @@ We can easily forgive a child who is afraid of the dark; the real tragedy of lif
 
 If one cannot enjoy reading a book over and over again, there is no use in reading it at all.   
 — Oscar Wilde  
+
+Logic will get you from A to Z; imagination will get you everywhere.   
+― Albert Einstein  
