@@ -339,3 +339,6 @@ If one cannot enjoy reading a book over and over again, there is no use in readi
 
 Logic will get you from A to Z; imagination will get you everywhere.   
 ― Albert Einstein  
+
+Imagination is everything. It is the preview of life's coming attractions.   
+― Albert Einstein  
