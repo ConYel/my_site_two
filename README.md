@@ -342,3 +342,6 @@ Logic will get you from A to Z; imagination will get you everywhere.
 
 Imagination is everything. It is the preview of life's coming attractions.   
 ― Albert Einstein  
+
+Be who you are and say what you feel, because those who mind don't matter, and those who matter don't mind.   
+― Bernard M. Baruch  
