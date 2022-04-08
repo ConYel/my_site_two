@@ -345,3 +345,6 @@ Imagination is everything. It is the preview of life's coming attractions.
 
 Be who you are and say what you feel, because those who mind don't matter, and those who matter don't mind.   
 ― Bernard M. Baruch  
+
+Defeat is not the worst of failures. Not to have tried is the true failure.  
+― George E. Woodberry   
