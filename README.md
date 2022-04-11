@@ -348,3 +348,6 @@ Be who you are and say what you feel, because those who mind don't matter, and t
 
 Defeat is not the worst of failures. Not to have tried is the true failure.  
 ― George E. Woodberry   
+
+Books are a uniquely portable magic.   
+— Stephen King  
