@@ -351,3 +351,6 @@ Defeat is not the worst of failures. Not to have tried is the true failure.
 
 Books are a uniquely portable magic.   
 — Stephen King  
+
+Solitude sometimes is best society.  
+― John Milton 
