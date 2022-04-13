@@ -354,3 +354,6 @@ Books are a uniquely portable magic.
 
 Solitude sometimes is best society.  
 ― John Milton 
+
+The more powerful and original a mind, the more it will incline towards the religion of solitude.  
+― Aldous Huxley  
