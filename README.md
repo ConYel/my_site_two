@@ -357,3 +357,6 @@ Solitude sometimes is best society.
 
 The more powerful and original a mind, the more it will incline towards the religion of solitude.  
 ― Aldous Huxley  
+
+Folks are usually about as happy as they make their minds up to be.  
+― Abraham Lincoln  
