@@ -360,3 +360,6 @@ The more powerful and original a mind, the more it will incline towards the reli
 
 Folks are usually about as happy as they make their minds up to be.  
 ― Abraham Lincoln  
+
+Fear cuts deeper than swords."
+— George R.R. Martin
