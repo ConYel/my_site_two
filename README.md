@@ -363,3 +363,6 @@ Folks are usually about as happy as they make their minds up to be.
 
 Fear cuts deeper than swords."
 — George R.R. Martin
+
+War is peace. Freedom is slavery. Ignorance is strength.  
+― George Orwell  
