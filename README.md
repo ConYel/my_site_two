@@ -369,3 +369,7 @@ War is peace. Freedom is slavery. Ignorance is strength.
 
 When the power of love overcomes the love of power, the world will know peace.  
 ― Jimi Hendrix  
+
+Emancipate yourselves from mental slavery.
+None but ourselves can free our minds.  
+— Bob Marley  
