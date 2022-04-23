@@ -373,3 +373,6 @@ When the power of love overcomes the love of power, the world will know peace.
 Emancipate yourselves from mental slavery.
 None but ourselves can free our minds.  
 — Bob Marley  
+
+Happiness in intelligent people is the rarest thing I know.  
+— Ernest Hemingway  
