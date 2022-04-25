@@ -376,3 +376,6 @@ None but ourselves can free our minds.
 
 Happiness in intelligent people is the rarest thing I know.  
 — Ernest Hemingway  
+
+When we don't know who to hate, we hate ourselves.  
+― Chuck Palahniuk  
