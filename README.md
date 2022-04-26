@@ -1,8 +1,3 @@
-# my_site_two
-This is another repo for my site  
-
-### it is a nice story
-
 The greatest enemy of knowledge is not ignorance, it is the illusion of knowledge.  
 ― Daniel Boorstin 
 
@@ -379,3 +374,6 @@ Happiness in intelligent people is the rarest thing I know.
 
 When we don't know who to hate, we hate ourselves.  
 ― Chuck Palahniuk  
+
+Some people never go crazy. What truly horrible lives they must lead.  
+― Charles Bukowski  
