@@ -377,3 +377,6 @@ When we don't know who to hate, we hate ourselves.
 
 Some people never go crazy. What truly horrible lives they must lead.  
 ― Charles Bukowski  
+
+People demand freedom of speech as a compensation for the freedom of thought which they seldom use.  
+— Søren Kierkegaard  
