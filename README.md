@@ -380,3 +380,6 @@ Some people never go crazy. What truly horrible lives they must lead.
 
 People demand freedom of speech as a compensation for the freedom of thought which they seldom use.  
 — Søren Kierkegaard  
+
+We must be free not because we claim freedom, but because we practice it.  
+— William Faulkner  
