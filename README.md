@@ -383,3 +383,6 @@ People demand freedom of speech as a compensation for the freedom of thought whi
 
 We must be free not because we claim freedom, but because we practice it.  
 — William Faulkner  
+
+To be a professional you have to act like one as well.   
+― Alcurtis Turner   
