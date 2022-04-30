@@ -386,3 +386,6 @@ We must be free not because we claim freedom, but because we practice it.
 
 To be a professional you have to act like one as well.   
 ― Alcurtis Turner   
+
+Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. If people all over the world...would do this, it would change the earth.  
+― William Faulkner   
