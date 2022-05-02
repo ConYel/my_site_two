@@ -389,3 +389,6 @@ To be a professional you have to act like one as well.
 
 Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. If people all over the world...would do this, it would change the earth.  
 ― William Faulkner   
+
+If we knew what it was we were doing, it would not be called research, would it?  
+― Albert Einstein  
