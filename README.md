@@ -392,3 +392,6 @@ Never be afraid to raise your voice for honesty and truth and compassion against
 
 If we knew what it was we were doing, it would not be called research, would it?  
 ― Albert Einstein  
+
+One of the biggest problems with the world today is that we have large groups of people who will accept whatever they hear on the grapevine, just because it suits their worldview—not because it is actually true or because they have evidence to support it. The really striking thing is that it would not take much effort to establish validity in most of these cases… but people prefer reassurance to research.  
+― Neil deGrasse Tyson  
