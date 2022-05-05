@@ -398,3 +398,6 @@ One of the biggest problems with the world today is that we have large groups of
 
 The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.   
 ― Isaac Asimov  
+
+Don't be pushed around by the fears in your mind. Be led by the dreams in your heart.  
+― Roy T. Bennett  
