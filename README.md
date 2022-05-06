@@ -401,3 +401,6 @@ The saddest aspect of life right now is that science gathers knowledge faster th
 
 Don't be pushed around by the fears in your mind. Be led by the dreams in your heart.  
 ― Roy T. Bennett  
+
+Whenever you find yourself on the side of the majority, it is time to reform (or pause and reflect).  
+― Mark Twain   
