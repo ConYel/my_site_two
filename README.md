@@ -404,3 +404,6 @@ Don't be pushed around by the fears in your mind. Be led by the dreams in your h
 
 Whenever you find yourself on the side of the majority, it is time to reform (or pause and reflect).  
 ― Mark Twain   
+
+I don't know the key to success, but the key to failure is trying to please everybody.  
+― Bill Cosby  
