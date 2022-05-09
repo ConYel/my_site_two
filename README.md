@@ -407,3 +407,6 @@ Whenever you find yourself on the side of the majority, it is time to reform (or
 
 I don't know the key to success, but the key to failure is trying to please everybody.  
 ― Bill Cosby  
+
+Don’t allow your wounds to transform you into someone you are not.  
+― Paulo Coelho  
