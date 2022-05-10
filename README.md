@@ -410,3 +410,6 @@ I don't know the key to success, but the key to failure is trying to please ever
 
 Don’t allow your wounds to transform you into someone you are not.  
 ― Paulo Coelho  
+
+There are no happy endings. Endings are the saddest part, So just give me a happy middle And a very happy start.  
+― Shel Silverstein 
