@@ -413,3 +413,6 @@ Don’t allow your wounds to transform you into someone you are not.
 
 There are no happy endings. Endings are the saddest part, So just give me a happy middle And a very happy start.  
 ― Shel Silverstein 
+
+A person who is nice to you, but rude to the waiter, is not a nice person.  
+― Dave Barry  
