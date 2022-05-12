@@ -416,3 +416,6 @@ There are no happy endings. Endings are the saddest part, So just give me a happ
 
 A person who is nice to you, but rude to the waiter, is not a nice person.  
 ― Dave Barry  
+
+A good example has twice the value of good advice.  
+― Albert Schweitzer  
