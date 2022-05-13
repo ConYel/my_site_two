@@ -419,3 +419,6 @@ A person who is nice to you, but rude to the waiter, is not a nice person.
 
 A good example has twice the value of good advice.  
 ― Albert Schweitzer  
+
+You teach best what you most need to learn.  
+― Richard Bach  
