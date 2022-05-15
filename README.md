@@ -422,3 +422,6 @@ A good example has twice the value of good advice.
 
 You teach best what you most need to learn.  
 ― Richard Bach  
+
+It is what we know already that often prevents us from learning.  
+― Claude Bernard  
