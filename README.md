@@ -425,3 +425,6 @@ You teach best what you most need to learn.
 
 It is what we know already that often prevents us from learning.  
 ― Claude Bernard  
+
+The best way to observe a fish is to become a fish.  
+― Jacques Yves Cousteau  
