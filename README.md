@@ -428,3 +428,6 @@ It is what we know already that often prevents us from learning.
 
 The best way to observe a fish is to become a fish.  
 ― Jacques Yves Cousteau  
+
+Those who are at war with others are not at peace with themselves.  
+― William Hazlitt  
