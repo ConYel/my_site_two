@@ -431,3 +431,6 @@ The best way to observe a fish is to become a fish.
 
 Those who are at war with others are not at peace with themselves.  
 ― William Hazlitt  
+
+A hungry dog believes in nothing but meat.  
+― Anton Chekhov   
