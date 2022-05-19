@@ -434,3 +434,6 @@ Those who are at war with others are not at peace with themselves.
 
 A hungry dog believes in nothing but meat.  
 ― Anton Chekhov   
+
+Life can only be understood backwards; but it must be lived forwards.  
+― Soren Kierkegaard 
