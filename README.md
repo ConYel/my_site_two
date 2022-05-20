@@ -437,3 +437,6 @@ A hungry dog believes in nothing but meat.
 
 Life can only be understood backwards; but it must be lived forwards.  
 ― Soren Kierkegaard 
+
+Religion is like a blind man looking in a black room for a black cat that isn't there, and finding it.  
+― Oscar Wilde  
