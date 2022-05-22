@@ -440,3 +440,6 @@ Life can only be understood backwards; but it must be lived forwards.
 
 Religion is like a blind man looking in a black room for a black cat that isn't there, and finding it.  
 ― Oscar Wilde  
+
+There is no terror in the bang, only in the anticipation of it.  
+―Alfred Hitchcock
