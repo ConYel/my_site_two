@@ -442,4 +442,7 @@ Religion is like a blind man looking in a black room for a black cat that isn't 
 ― Oscar Wilde  
 
 There is no terror in the bang, only in the anticipation of it.  
-―Alfred Hitchcock
+― Alfred Hitchcock
+
+Students who acquire large debts putting themselves through school are unlikely to think about changing society. When you trap people in a system of debt, they can't afford the time to think.  
+― Noam Chomsky  
