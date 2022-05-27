@@ -446,3 +446,6 @@ There is no terror in the bang, only in the anticipation of it.
 
 Students who acquire large debts putting themselves through school are unlikely to think about changing society. When you trap people in a system of debt, they can't afford the time to think.  
 ― Noam Chomsky  
+
+Our life is what our thoughts make it.  
+― Marcus Aurelius  
