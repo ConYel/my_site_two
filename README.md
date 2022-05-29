@@ -449,3 +449,6 @@ Students who acquire large debts putting themselves through school are unlikely 
 
 Our life is what our thoughts make it.  
 ― Marcus Aurelius  
+
+What a terrible era in which idiots govern the blind.  
+― William Shakespeare
