@@ -452,3 +452,6 @@ Our life is what our thoughts make it.
 
 What a terrible era in which idiots govern the blind.  
 ― William Shakespeare
+
+Intelligence is the ability to adapt to change.  
+― Stephen Hawking
