@@ -455,3 +455,6 @@ What a terrible era in which idiots govern the blind.
 
 Intelligence is the ability to adapt to change.  
 ― Stephen Hawking
+
+Why look for conspiracy when stupidity can explain so much"
+― Johann Wolfgang von Goethe
