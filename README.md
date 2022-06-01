@@ -458,3 +458,6 @@ Intelligence is the ability to adapt to change.
 
 Why look for conspiracy when stupidity can explain so much"
 ― Johann Wolfgang von Goethe
+
+When something bad happens you have three choices. You can either let it define you, let it destroy you, or you can let it strengthen you.  
+― Dr. Seuss
