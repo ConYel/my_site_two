@@ -461,3 +461,6 @@ Why look for conspiracy when stupidity can explain so much"
 
 When something bad happens you have three choices. You can either let it define you, let it destroy you, or you can let it strengthen you.  
 ― Dr. Seuss
+
+The world will ask you who you are, and if you don't know, the world will tell you."  
+― Carl Jung  
