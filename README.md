@@ -464,3 +464,6 @@ When something bad happens you have three choices. You can either let it define 
 
 The world will ask you who you are, and if you don't know, the world will tell you."  
 ― Carl Jung  
+
+Life is a sum of all your choices". So, what are you doing today?"  
+― Albert Camus
