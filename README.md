@@ -467,3 +467,6 @@ The world will ask you who you are, and if you don't know, the world will tell y
 
 Life is a sum of all your choices". So, what are you doing today?"  
 ― Albert Camus
+
+It's better to be hated for who you are, than to be loved for someone you're not. It's a sign of your worth sometimes, if you're hated by the right people.  
+― Bette Davis
