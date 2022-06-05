@@ -470,3 +470,6 @@ Life is a sum of all your choices". So, what are you doing today?"
 
 It's better to be hated for who you are, than to be loved for someone you're not. It's a sign of your worth sometimes, if you're hated by the right people.  
 ― Bette Davis
+
+I think the saddest people always try their hardest to make people happy because they know what it's like to feel absolutely worthless and they don't want anyone else to feel like that.  
+― Robin Williams
