@@ -476,3 +476,6 @@ I think the saddest people always try their hardest to make people happy because
 
 Oppressors can tyrannize only when they achieve a standing army, an enslaved press, and a disarmed populace.
 ― James Madison
+
+You have power over your mind - not outside events. Realize this, and you will find strength.  
+― Marcus Aurelius
