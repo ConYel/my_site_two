@@ -479,3 +479,6 @@ Oppressors can tyrannize only when they achieve a standing army, an enslaved pre
 
 You have power over your mind - not outside events. Realize this, and you will find strength.  
 ― Marcus Aurelius
+
+Fun is like life insurance; the older you get, the more it costs.  
+― Kin Hubbard
