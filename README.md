@@ -482,3 +482,6 @@ You have power over your mind - not outside events. Realize this, and you will f
 
 Fun is like life insurance; the older you get, the more it costs.  
 ― Kin Hubbard
+
+Liberty is a luxury of security; the free individual is a product and a mark of civilization.
+― Will Durant
