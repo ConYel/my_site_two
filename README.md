@@ -485,3 +485,6 @@ Fun is like life insurance; the older you get, the more it costs.
 
 Liberty is a luxury of security; the free individual is a product and a mark of civilization.
 ― Will Durant
+
+A businessman cannot force you to buy his product; if he makes a mistake, he suffers the consequences; if he fails, he takes the loss. If bureaucrat makes a mistake, you suffer the consequences; if he fails, he passes the loss on to you.
+― Ayn Rand
