@@ -488,3 +488,6 @@ Liberty is a luxury of security; the free individual is a product and a mark of 
 
 A businessman cannot force you to buy his product; if he makes a mistake, he suffers the consequences; if he fails, he takes the loss. If bureaucrat makes a mistake, you suffer the consequences; if he fails, he passes the loss on to you.
 ― Ayn Rand
+
+An honest public servant can't become rich in politics. He can only attain greatness and satisfaction by service.  
+― Harry S. Truman  
