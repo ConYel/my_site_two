@@ -491,3 +491,6 @@ A businessman cannot force you to buy his product; if he makes a mistake, he suf
 
 An honest public servant can't become rich in politics. He can only attain greatness and satisfaction by service.  
 ― Harry S. Truman  
+
+To be capable of steady friendship or lasting love, are the two greatest proofs, not only of goodness of heart, but of strength of mind.
+― William Hazlitt
