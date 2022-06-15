@@ -494,3 +494,6 @@ An honest public servant can't become rich in politics. He can only attain great
 
 To be capable of steady friendship or lasting love, are the two greatest proofs, not only of goodness of heart, but of strength of mind.
 ― William Hazlitt
+
+We don't see things as they are, we see them as we are.  
+― Anais Nin  
