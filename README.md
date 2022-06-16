@@ -497,3 +497,6 @@ To be capable of steady friendship or lasting love, are the two greatest proofs,
 
 We don't see things as they are, we see them as we are.  
 ― Anais Nin  
+
+All men make mistakes, but a good man yields when he knows his course is wrong, and repairs the evil. The only crime is pride.  
+― Sophocles
