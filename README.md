@@ -500,3 +500,6 @@ We don't see things as they are, we see them as we are.
 
 All men make mistakes, but a good man yields when he knows his course is wrong, and repairs the evil. The only crime is pride.  
 ― Sophocles
+
+Who looks outside, dreams; who looks inside, awakes.  
+― Carl Jung  
