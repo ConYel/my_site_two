@@ -503,3 +503,6 @@ All men make mistakes, but a good man yields when he knows his course is wrong, 
 
 Who looks outside, dreams; who looks inside, awakes.  
 ― Carl Jung  
+
+You can't help getting older, but you don't have to get old.  
+― George Burns  
