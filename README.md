@@ -506,3 +506,6 @@ Who looks outside, dreams; who looks inside, awakes.
 
 You can't help getting older, but you don't have to get old.  
 ― George Burns  
+
+A government that robs Peter to pay Paul can always depend on the support of Paul.  
+― George Bernard Shaw  
