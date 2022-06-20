@@ -509,3 +509,6 @@ You can't help getting older, but you don't have to get old.
 
 A government that robs Peter to pay Paul can always depend on the support of Paul.  
 ― George Bernard Shaw  
+
+One always has exaggerated ideas about what one doesn't know.  
+― Albert Camus  
