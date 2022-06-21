@@ -512,3 +512,6 @@ A government that robs Peter to pay Paul can always depend on the support of Pau
 
 One always has exaggerated ideas about what one doesn't know.  
 ― Albert Camus  
+
+Patience is passion tamed.  
+― Lyman Abbott  
