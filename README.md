@@ -515,3 +515,6 @@ One always has exaggerated ideas about what one doesn't know.
 
 Patience is passion tamed.  
 ― Lyman Abbott  
+
+The greatest danger in times of turbulence is not the turbulence; it is to act with yesterday's logic.  
+― Peter Drucker  
