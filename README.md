@@ -518,3 +518,6 @@ Patience is passion tamed.
 
 The greatest danger in times of turbulence is not the turbulence; it is to act with yesterday's logic.  
 ― Peter Drucker  
+
+Your only limitations are those you set up in your mind, or permit others to set up for you.  
+― Og Mandino  
