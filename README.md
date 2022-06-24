@@ -521,3 +521,6 @@ The greatest danger in times of turbulence is not the turbulence; it is to act w
 
 Your only limitations are those you set up in your mind, or permit others to set up for you.  
 ― Og Mandino  
+
+Nothing is permanent in this wicked world - not even our troubles. 
+― Charlie Chaplin
