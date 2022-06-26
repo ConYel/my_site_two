@@ -524,3 +524,6 @@ Your only limitations are those you set up in your mind, or permit others to set
 
 Nothing is permanent in this wicked world - not even our troubles. 
 ― Charlie Chaplin
+
+Perfection is not attainable, but if we chase perfection we can catch excellence.  
+― Vince Lombardi  
