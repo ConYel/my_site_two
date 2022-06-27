@@ -527,3 +527,6 @@ Nothing is permanent in this wicked world - not even our troubles.
 
 Perfection is not attainable, but if we chase perfection we can catch excellence.  
 ― Vince Lombardi  
+
+No sooner does man discover intelligence than he tries to involve it in his own stupidity.  
+― Jacques Yves Cousteau  
