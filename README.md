@@ -530,3 +530,6 @@ Perfection is not attainable, but if we chase perfection we can catch excellence
 
 No sooner does man discover intelligence than he tries to involve it in his own stupidity.  
 ― Jacques Yves Cousteau  
+
+It is very unfair to judge any body's conduct, without an intimate knowledge of their situation.  
+― Jane Austen  
