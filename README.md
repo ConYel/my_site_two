@@ -533,3 +533,6 @@ No sooner does man discover intelligence than he tries to involve it in his own 
 
 It is very unfair to judge any body's conduct, without an intimate knowledge of their situation.  
 ― Jane Austen  
+
+If we continue to accumulate only power and not wisdom, we will surely destroy ourselves.  
+― Carl Sagan  
