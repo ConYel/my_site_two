@@ -536,3 +536,6 @@ It is very unfair to judge any body's conduct, without an intimate knowledge of 
 
 If we continue to accumulate only power and not wisdom, we will surely destroy ourselves.  
 ― Carl Sagan  
+
+To argue with a person who has renounced the use of reason is like administering medicine to the dead.  
+― Thomas Paine
