@@ -539,3 +539,6 @@ If we continue to accumulate only power and not wisdom, we will surely destroy o
 
 To argue with a person who has renounced the use of reason is like administering medicine to the dead.  
 ― Thomas Paine
+
+The nicest constitutions of government are often like the finest pieces of clock-work, which, depending on so many motions, are therefore more subject to be out of order.  
+― Alexander Pope  
