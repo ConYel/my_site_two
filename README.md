@@ -542,3 +542,6 @@ To argue with a person who has renounced the use of reason is like administering
 
 The nicest constitutions of government are often like the finest pieces of clock-work, which, depending on so many motions, are therefore more subject to be out of order.  
 ― Alexander Pope  
+
+He who establishes his argument by noise and command shows that his reason is weak.  
+― Michel de Montaigne  
