@@ -545,3 +545,6 @@ The nicest constitutions of government are often like the finest pieces of clock
 
 He who establishes his argument by noise and command shows that his reason is weak.  
 ― Michel de Montaigne  
+
+Knowledge is of no value unless you put it into practice.  
+― Anton Chekhov  
