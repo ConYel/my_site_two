@@ -548,3 +548,6 @@ He who establishes his argument by noise and command shows that his reason is we
 
 Knowledge is of no value unless you put it into practice.  
 ― Anton Chekhov  
+
+Ninety percent of the art of living consists of getting along with people you cannot stand.  
+― Samuel Goldwyn  
