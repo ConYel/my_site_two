@@ -551,3 +551,6 @@ Knowledge is of no value unless you put it into practice.
 
 Ninety percent of the art of living consists of getting along with people you cannot stand.  
 ― Samuel Goldwyn  
+
+I am here for a purpose and that purpose is to grow into a mountain, not to shrink to a grain of sand.  
+― Og Mandino  
