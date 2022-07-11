@@ -554,3 +554,6 @@ Ninety percent of the art of living consists of getting along with people you ca
 
 I am here for a purpose and that purpose is to grow into a mountain, not to shrink to a grain of sand.  
 ― Og Mandino  
+
+We are limited, not by our abilities, but by our vision.  
+  Khalil Gibran  
