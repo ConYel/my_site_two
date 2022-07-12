@@ -556,4 +556,7 @@ I am here for a purpose and that purpose is to grow into a mountain, not to shri
 ― Og Mandino  
 
 We are limited, not by our abilities, but by our vision.  
-  Khalil Gibran  
+― Khalil Gibran  
+
+There is nothing noble in being superior to your fellow men. True nobility lies in being superior to your former self.  
+― Ernest Hemingway  
