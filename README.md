@@ -560,3 +560,6 @@ We are limited, not by our abilities, but by our vision.
 
 There is nothing noble in being superior to your fellow men. True nobility lies in being superior to your former self.  
 ― Ernest Hemingway  
+
+Science is organized knowledge. Wisdom is organized life.  
+― Immanuel Kant  
