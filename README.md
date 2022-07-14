@@ -563,3 +563,6 @@ There is nothing noble in being superior to your fellow men. True nobility lies 
 
 Science is organized knowledge. Wisdom is organized life.  
 ― Immanuel Kant  
+
+The only way to deal with an unfree world is to become so absolutely free that your very existence is an act of rebellion.  
+― Albert Camus  
