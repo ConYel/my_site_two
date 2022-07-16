@@ -569,3 +569,6 @@ The only way to deal with an unfree world is to become so absolutely free that y
 
 Every man is two men; one is awake in the darkness, the other asleep in the light.  
 ― Khalil Gibran  
+
+However difficult life may seem, there is always something you can do and succeed at.  
+― Stephen Hawking  
