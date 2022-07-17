@@ -572,3 +572,6 @@ Every man is two men; one is awake in the darkness, the other asleep in the ligh
 
 However difficult life may seem, there is always something you can do and succeed at.  
 ― Stephen Hawking  
+
+If we do not abolish war on this earth, then surely one day war will abolish us from the earth.  
+― Harry S. Truman  
