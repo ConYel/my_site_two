@@ -575,3 +575,6 @@ However difficult life may seem, there is always something you can do and succee
 
 If we do not abolish war on this earth, then surely one day war will abolish us from the earth.  
 ― Harry S. Truman  
+
+The best way to keep a prisoner from escaping is to make sure he never knows he's in prison.  
+― Fyodor Dostoevsky  
