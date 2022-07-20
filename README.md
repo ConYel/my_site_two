@@ -578,3 +578,6 @@ If we do not abolish war on this earth, then surely one day war will abolish us 
 
 The best way to keep a prisoner from escaping is to make sure he never knows he's in prison.  
 ― Fyodor Dostoevsky  
+
+Nothing disturbs me more than the glorification of stupidity.  
+― Carl Sagan  
