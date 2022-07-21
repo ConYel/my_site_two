@@ -581,3 +581,6 @@ The best way to keep a prisoner from escaping is to make sure he never knows he'
 
 Nothing disturbs me more than the glorification of stupidity.  
 ― Carl Sagan  
+
+Politics: Poli a Latin word meaning many and tics meaning bloodsucking creatures.  
+― Robin Williams  Williams
