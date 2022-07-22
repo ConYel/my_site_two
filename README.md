@@ -583,4 +583,7 @@ Nothing disturbs me more than the glorification of stupidity.
 ― Carl Sagan  
 
 Politics: Poli a Latin word meaning many and tics meaning bloodsucking creatures.  
-― Robin Williams  Williams
+― Robin Williams  
+
+Wealth is not to feed our egos but to feed the hungry and to help people help themselves.
+― Andrew Carnegie  
