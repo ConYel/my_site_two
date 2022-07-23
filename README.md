@@ -587,3 +587,6 @@ Politics: Poli a Latin word meaning many and tics meaning bloodsucking creatures
 
 Wealth is not to feed our egos but to feed the hungry and to help people help themselves.
 ― Andrew Carnegie  
+
+Both optimists and pessimists contribute to society. The optimist invents the aeroplane, the pessimist the parachute.  
+― George Bernard Shaw  
