@@ -590,3 +590,6 @@ Wealth is not to feed our egos but to feed the hungry and to help people help th
 
 Both optimists and pessimists contribute to society. The optimist invents the aeroplane, the pessimist the parachute.  
 ― George Bernard Shaw  
+
+Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.   
+― Marcus Aurelius  
