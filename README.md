@@ -593,3 +593,6 @@ Both optimists and pessimists contribute to society. The optimist invents the ae
 
 Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.   
 ― Marcus Aurelius  
+
+The task we must set for ourselves is not to feel secure, but to be able to tolerate insecurity.  
+― Erich Fromm  
