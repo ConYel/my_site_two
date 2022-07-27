@@ -596,3 +596,6 @@ Everything we hear is an opinion, not a fact. Everything we see is a perspective
 
 The task we must set for ourselves is not to feel secure, but to be able to tolerate insecurity.  
 ― Erich Fromm  
+
+Practice kindness all day to everybody and you will realize you're already in heaven now.  
+― Jack Kerouac  
