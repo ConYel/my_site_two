@@ -599,3 +599,6 @@ The task we must set for ourselves is not to feel secure, but to be able to tole
 
 Practice kindness all day to everybody and you will realize you're already in heaven now.  
 ― Jack Kerouac  
+
+Within you there is a stillness and sanctuary to which you can retreat at any time and be yourself.  
+― Hermann Hesse  
