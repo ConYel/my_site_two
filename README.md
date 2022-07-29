@@ -602,3 +602,6 @@ Practice kindness all day to everybody and you will realize you're already in he
 
 Within you there is a stillness and sanctuary to which you can retreat at any time and be yourself.  
 ― Hermann Hesse  
+
+Don't tell me the moon is shining; show me the glint of light on broken glass.  
+― Anton Chekhov  
