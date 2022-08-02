@@ -614,3 +614,6 @@ A human being should be able to change a diaper, plan an invasion, butcher a hog
 
 What people believe prevails over the truth.  
 ― Sophocles  
+
+Why is it that people with the most narrow of minds seem to have the widest of mouths?  
+― Lewis Carroll  
