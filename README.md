@@ -617,3 +617,6 @@ What people believe prevails over the truth.
 
 Why is it that people with the most narrow of minds seem to have the widest of mouths?  
 ― Lewis Carroll  
+
+Do all the good you can and make as little fuss about it as possible.  
+― Charles Dickens  
