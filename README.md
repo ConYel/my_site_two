@@ -620,3 +620,6 @@ Why is it that people with the most narrow of minds seem to have the widest of m
 
 Do all the good you can and make as little fuss about it as possible.  
 ― Charles Dickens  
+
+Beware of false knowledge; it is more dangerous than ignorance.  
+― George Bernard Shaw  
