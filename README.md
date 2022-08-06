@@ -623,3 +623,6 @@ Do all the good you can and make as little fuss about it as possible.
 
 Beware of false knowledge; it is more dangerous than ignorance.  
 ― George Bernard Shaw  
+
+The greatest astonishment of my life was the discovery that the man who does the work is not the man who gets rich  
+― Andrew Carnegie    
