@@ -626,3 +626,6 @@ Beware of false knowledge; it is more dangerous than ignorance.
 
 The greatest astonishment of my life was the discovery that the man who does the work is not the man who gets rich  
 ― Andrew Carnegie    
+
+It is easy to sit up and take notice, What is difficult is getting up and taking action.  
+― Honore de Balzac  
