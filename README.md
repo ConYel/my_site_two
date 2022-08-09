@@ -629,3 +629,6 @@ The greatest astonishment of my life was the discovery that the man who does the
 
 It is easy to sit up and take notice, What is difficult is getting up and taking action.  
 ― Honore de Balzac  
+
+I have a foreboding of an America in my children's or grandchildren's time - [...] when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness.  
+― Carl Sagan    
