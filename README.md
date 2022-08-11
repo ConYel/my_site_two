@@ -634,4 +634,7 @@ I have a foreboding of an America in my children's or grandchildren's time - [..
 ― Carl Sagan    
 
 Once a government is committed to the principle of silencing the voice of opposition, it has only one way to go, and that is down the path of increasingly repressive measures, until it becomes a source of terror to all its citizens and creates a country where everyone lives in fear.  
-― Harry S. Truman
+― Harry S. Truman  
+
+Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway.  
+― Earl Nightingale  
