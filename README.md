@@ -638,3 +638,6 @@ Once a government is committed to the principle of silencing the voice of opposi
 
 Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway.  
 ― Earl Nightingale  
+
+You can sway a thousand men by appealing to their prejudices quicker than you can convince one man by logic.  
+― Robert A. Heinlein  
