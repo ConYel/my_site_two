@@ -641,3 +641,6 @@ Never give up on a dream just because of the time it will take to accomplish it.
 
 You can sway a thousand men by appealing to their prejudices quicker than you can convince one man by logic.  
 ― Robert A. Heinlein  
+
+A dying culture invariably exhibits personal rudeness. Bad manners. Lack of consideration for others in minor matters. A loss of politeness, of gentle manners, is more significant than is a riot.  
+― Robert A. Heinlein  
