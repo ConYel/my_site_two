@@ -644,3 +644,6 @@ You can sway a thousand men by appealing to their prejudices quicker than you ca
 
 A dying culture invariably exhibits personal rudeness. Bad manners. Lack of consideration for others in minor matters. A loss of politeness, of gentle manners, is more significant than is a riot.  
 ― Robert A. Heinlein  
+
+I had one typewriter for 50 years, but I have bought seven computers in six years. I suppose that's why Bill Gates is rich, and Underwood is out of business.  
+― Andy Rooney  
