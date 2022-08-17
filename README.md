@@ -650,3 +650,6 @@ I had one typewriter for 50 years, but I have bought seven computers in six year
 
 You never change things by fighting the existing reality. To change something, build a new model that makes the existing model obsolete.  
 ― R. Buckminster Fuller  
+
+We are not the same persons this year as last; nor are those we love. It is a happy chance if we, changing, continue to love a changed person.  
+― W. Somerset Maugham  
