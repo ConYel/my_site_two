@@ -656,3 +656,6 @@ We are not the same persons this year as last; nor are those we love. It is a ha
 
 Self-education is, I firmly believe, the only kind of education there is. The only function of a school is to make self-education easier; failing that, it does nothing.  
 ― Isaac Asimov  
+
+Don't learn to do, but learn in doing.  
+― Samuel Butler  
