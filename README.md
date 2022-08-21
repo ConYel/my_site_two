@@ -659,3 +659,6 @@ Self-education is, I firmly believe, the only kind of education there is. The on
 
 Don't learn to do, but learn in doing.  
 ― Samuel Butler  
+
+I imagine one of the reasons people cling to their hates so stubbornly is because they sense, once hate is gone, they will be forced to deal with pain.  
+― James A. Baldwin  
