@@ -662,3 +662,6 @@ Don't learn to do, but learn in doing.
 
 I imagine one of the reasons people cling to their hates so stubbornly is because they sense, once hate is gone, they will be forced to deal with pain.  
 ― James A. Baldwin  
+
+Men fight for liberty and win it with hard knocks. Their children, brought up easy, let it slip away again, poor fools. And their grandchildren are once more slaves.
+― D. H. Lawrence  
