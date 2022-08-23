@@ -665,3 +665,6 @@ I imagine one of the reasons people cling to their hates so stubbornly is becaus
 
 Men fight for liberty and win it with hard knocks. Their children, brought up easy, let it slip away again, poor fools. And their grandchildren are once more slaves.
 ― D. H. Lawrence  
+
+A society is in decay, final or transitional, when common sense really becomes uncommon.  
+― Gilbert K. Chesterton  
