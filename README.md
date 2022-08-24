@@ -668,3 +668,6 @@ Men fight for liberty and win it with hard knocks. Their children, brought up ea
 
 A society is in decay, final or transitional, when common sense really becomes uncommon.  
 ― Gilbert K. Chesterton  
+
+I have one share in corporate Earth, and I am nervous about the management.  
+― E. B. White  
