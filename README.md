@@ -671,3 +671,6 @@ A society is in decay, final or transitional, when common sense really becomes u
 
 I have one share in corporate Earth, and I am nervous about the management.  
 ― E. B. White  
+
+Facing it, always facing it, that's the way to get through. Face it.  
+― Joseph Conrad  
