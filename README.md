@@ -674,3 +674,6 @@ I have one share in corporate Earth, and I am nervous about the management.
 
 Facing it, always facing it, that's the way to get through. Face it.  
 ― Joseph Conrad  
+
+The only time you run out of chances is when you stop taking them.  
+― Alexander Pope  
