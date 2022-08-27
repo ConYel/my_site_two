@@ -677,3 +677,6 @@ Facing it, always facing it, that's the way to get through. Face it.
 
 The only time you run out of chances is when you stop taking them.  
 ― Alexander Pope  
+
+Nature is painting for us, day after day, pictures of infinite beauty.  
+― John Ruskin  
