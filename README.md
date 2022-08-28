@@ -680,3 +680,6 @@ The only time you run out of chances is when you stop taking them.
 
 Nature is painting for us, day after day, pictures of infinite beauty.  
 ― John Ruskin  
+
+Falling down is not a failure. Failure comes when you stay where you have fallen.  
+― Socrates  
