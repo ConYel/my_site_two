@@ -683,3 +683,6 @@ Nature is painting for us, day after day, pictures of infinite beauty.
 
 Falling down is not a failure. Failure comes when you stay where you have fallen.  
 ― Socrates  
+
+He that wishes to see his country robbed of its rights cannot be a patriot.  
+― Samuel Johnson  
