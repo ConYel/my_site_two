@@ -686,3 +686,6 @@ Falling down is not a failure. Failure comes when you stay where you have fallen
 
 He that wishes to see his country robbed of its rights cannot be a patriot.  
 ― Samuel Johnson  
+
+Successful people are not people without problems. They are people who have learned to solve their problems.  
+― Earl Nightingale  
