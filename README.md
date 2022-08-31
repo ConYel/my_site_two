@@ -689,3 +689,6 @@ He that wishes to see his country robbed of its rights cannot be a patriot.
 
 Successful people are not people without problems. They are people who have learned to solve their problems.  
 ― Earl Nightingale  
+
+The first panacea for a mismanaged nation is inflation of the currency; the second is war. Both bring a temporary prosperity; both bring a permanent ruin. But both are the refuge of political and economic opportunists.  
+― Ernest Hemingway  
