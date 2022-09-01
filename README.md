@@ -692,3 +692,6 @@ Successful people are not people without problems. They are people who have lear
 
 The first panacea for a mismanaged nation is inflation of the currency; the second is war. Both bring a temporary prosperity; both bring a permanent ruin. But both are the refuge of political and economic opportunists.  
 ― Ernest Hemingway  
+
+Ignorance and fear are twins whose mother is slavery and whose father is oppression, and the mentality of the whole family is that of slaves.  
+― Ameen Rihani  
