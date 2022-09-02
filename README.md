@@ -695,3 +695,6 @@ The first panacea for a mismanaged nation is inflation of the currency; the seco
 
 Ignorance and fear are twins whose mother is slavery and whose father is oppression, and the mentality of the whole family is that of slaves.  
 ― Ameen Rihani  
+
+Be modest in speech, but excel in action.  
+― Horace  
