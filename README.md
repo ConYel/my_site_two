@@ -698,3 +698,6 @@ Ignorance and fear are twins whose mother is slavery and whose father is oppress
 
 Be modest in speech, but excel in action.  
 ― Horace  
+
+The most wasted of all days is one without laughter.  
+― e. e. cummings  
