@@ -701,3 +701,6 @@ Be modest in speech, but excel in action.
 
 The most wasted of all days is one without laughter.  
 ― e. e. cummings  
+
+I quote others only in order the better to express myself.  
+― Michel de Montaigne  
