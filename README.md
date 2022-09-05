@@ -704,3 +704,6 @@ The most wasted of all days is one without laughter.
 
 I quote others only in order the better to express myself.  
 ― Michel de Montaigne  
+
+One can only forget about time by making use of it.  
+― Charles Baudelaire  
