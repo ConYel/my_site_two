@@ -707,3 +707,6 @@ I quote others only in order the better to express myself.
 
 One can only forget about time by making use of it.  
 ― Charles Baudelaire  
+
+The cure for boredom is curiosity. There is no cure for curiosity.  
+― Dorothy Parker  
