@@ -710,3 +710,6 @@ One can only forget about time by making use of it.
 
 The cure for boredom is curiosity. There is no cure for curiosity.  
 ― Dorothy Parker  
+
+I can't believe what you say, because I see what you do.  
+― James A. Baldwin  
