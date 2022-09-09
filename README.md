@@ -716,3 +716,6 @@ I can't believe what you say, because I see what you do.
 
 The one who plants trees, knowing that he will never sit in their shade, has at least started to understand the meaning of life.  
 ― Rabindranath Tagore  
+
+Man is the only kind of varmint sets his own trap, baits it, then steps in it.  
+― John Steinbeck  
