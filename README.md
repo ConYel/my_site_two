@@ -719,3 +719,6 @@ The one who plants trees, knowing that he will never sit in their shade, has at 
 
 Man is the only kind of varmint sets his own trap, baits it, then steps in it.  
 ― John Steinbeck  
+
+No one is more cherished in this world than someone who lightens the burden of another. Thank you.  
+― Joseph Addison  
