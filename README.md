@@ -722,3 +722,6 @@ Man is the only kind of varmint sets his own trap, baits it, then steps in it.
 
 No one is more cherished in this world than someone who lightens the burden of another. Thank you.  
 ― Joseph Addison  
+
+Observation, not old age, brings wisdom.  
+― Publilius Syrus  
