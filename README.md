@@ -725,3 +725,6 @@ No one is more cherished in this world than someone who lightens the burden of a
 
 Observation, not old age, brings wisdom.  
 ― Publilius Syrus  
+
+It's a terrible waste to be happy and not notice it.  
+― Kurt Vonnegut  
