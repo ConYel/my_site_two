@@ -585,7 +585,7 @@ Nothing disturbs me more than the glorification of stupidity.
 Politics: Poli a Latin word meaning many and tics meaning bloodsucking creatures.  
 ― Robin Williams  
 
-Wealth is not to feed our egos but to feed the hungry and to help people help themselves.
+Wealth is not to feed our egos but to feed the hungry and to help people help themselves.  
 ― Andrew Carnegie  
 
 Both optimists and pessimists contribute to society. The optimist invents the aeroplane, the pessimist the parachute.  
@@ -728,3 +728,6 @@ Observation, not old age, brings wisdom.
 
 It's a terrible waste to be happy and not notice it.  
 ― Kurt Vonnegut  
+
+No man becomes rich unless he enriches others.  
+― Andrew Carnegie  
