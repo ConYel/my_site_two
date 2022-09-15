@@ -731,3 +731,6 @@ It's a terrible waste to be happy and not notice it.
 
 No man becomes rich unless he enriches others.  
 ― Andrew Carnegie  
+
+The meeting of two personalities is like the contact of two chemical substances: if there is any reaction, both are transformed.  
+― Carl Jung  
