@@ -737,3 +737,6 @@ The meeting of two personalities is like the contact of two chemical substances:
 
 You teach me, I forget. You show me, I remember. You involve me, I understand.  
 ― E. O. Wilson  
+
+The rain will stop, the night will end, the hurt will fade. Hope is never so lost that it can't be found.  
+― Ernest Hemingway  
