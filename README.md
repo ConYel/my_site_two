@@ -740,3 +740,6 @@ You teach me, I forget. You show me, I remember. You involve me, I understand.
 
 The rain will stop, the night will end, the hurt will fade. Hope is never so lost that it can't be found.  
 ― Ernest Hemingway  
+
+Men fight for liberty and win it with hard knocks. Their children, brought up easy, let it slip away again, poor fools. And their grandchildren are once more slaves.  
+― D. H. Lawrence  
