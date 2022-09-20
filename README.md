@@ -743,3 +743,6 @@ The rain will stop, the night will end, the hurt will fade. Hope is never so los
 
 Men fight for liberty and win it with hard knocks. Their children, brought up easy, let it slip away again, poor fools. And their grandchildren are once more slaves.  
 ― D. H. Lawrence  
+
+There are only three pleasures in life pure and lasting, and all derived from inanimate things-books, pictures and the face of nature.  
+― William Hazlitt  
