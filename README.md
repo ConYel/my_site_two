@@ -746,3 +746,6 @@ Men fight for liberty and win it with hard knocks. Their children, brought up ea
 
 There are only three pleasures in life pure and lasting, and all derived from inanimate things-books, pictures and the face of nature.  
 ― William Hazlitt  
+
+Rather fail with honor than succeed by fraud.  
+― Sophocles  
