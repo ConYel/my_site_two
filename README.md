@@ -749,3 +749,6 @@ There are only three pleasures in life pure and lasting, and all derived from in
 
 Rather fail with honor than succeed by fraud.  
 ― Sophocles  
+
+I recommend you to take care of the minutes, for the hours will take care of themselves.  
+― Lord Chesterfield  
