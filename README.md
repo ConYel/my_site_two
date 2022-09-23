@@ -752,3 +752,6 @@ Rather fail with honor than succeed by fraud.
 
 I recommend you to take care of the minutes, for the hours will take care of themselves.  
 ― Lord Chesterfield  
+
+No one is useless in this world who lightens the burden of it to anyone else.    
+― Charles Dickens  
