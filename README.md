@@ -755,3 +755,6 @@ I recommend you to take care of the minutes, for the hours will take care of the
 
 No one is useless in this world who lightens the burden of it to anyone else.    
 ― Charles Dickens  
+
+Never confuse a single defeat with a final defeat.  
+― F. Scott Fitzgerald  
