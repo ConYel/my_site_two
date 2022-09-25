@@ -758,3 +758,6 @@ No one is useless in this world who lightens the burden of it to anyone else.
 
 Never confuse a single defeat with a final defeat.  
 ― F. Scott Fitzgerald  
+
+The lessons of history teach us - if the lessons of history teach us anything - that nobody learns the lessons that history teaches us.  
+― Robert A. Heinlein  
