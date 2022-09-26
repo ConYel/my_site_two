@@ -761,3 +761,6 @@ Never confuse a single defeat with a final defeat.
 
 The lessons of history teach us - if the lessons of history teach us anything - that nobody learns the lessons that history teaches us.  
 ― Robert A. Heinlein  
+
+Fascism is a lie told by bullies.  
+― Ernest Hemingway  
