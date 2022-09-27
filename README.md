@@ -764,3 +764,6 @@ The lessons of history teach us - if the lessons of history teach us anything - 
 
 Fascism is a lie told by bullies.  
 ― Ernest Hemingway  
+
+Any sufficiently advanced technology is indistinguishable from magic.  
+― Arthur C. Clarke  
