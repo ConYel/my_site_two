@@ -767,3 +767,6 @@ Fascism is a lie told by bullies.
 
 Any sufficiently advanced technology is indistinguishable from magic.  
 ― Arthur C. Clarke  
+
+When you abandon freedom to achieve security, you lose both and deserve neither.  
+― Thomas Jefferson  
