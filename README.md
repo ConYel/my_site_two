@@ -770,3 +770,6 @@ Any sufficiently advanced technology is indistinguishable from magic.
 
 When you abandon freedom to achieve security, you lose both and deserve neither.  
 ― Thomas Jefferson  
+
+When tyranny becomes law, rebellion becomes duty.  
+― Thomas Jefferson  
