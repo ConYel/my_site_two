@@ -774,3 +774,5 @@ When you abandon freedom to achieve security, you lose both and deserve neither.
 When tyranny becomes law, rebellion becomes duty.  
 ― Thomas Jefferson  
 
+But we are living in a sceptical and, if I may use the phrase, a thought-tormented age: and sometimes I fear that this new generation, educated or hyper-educated as it is, will lack those qualities of humanity, of hospitality, of kindly humour which belonged to an older day.  
+― James Joyce  
