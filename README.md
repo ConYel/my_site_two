@@ -779,3 +779,6 @@ But we are living in a sceptical and, if I may use the phrase, a thought-torment
 
 A wise man speaks because he has something to say; a fool because he has to say something.  
 ― Plato  
+
+It's not what happens to you, but how you react to it that matters.  
+― Epictetus  
