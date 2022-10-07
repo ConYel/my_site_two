@@ -782,3 +782,6 @@ A wise man speaks because he has something to say; a fool because he has to say 
 
 It's not what happens to you, but how you react to it that matters.  
 ― Epictetus  
+
+I am a fool, but I know I'm a fool and that makes me smarter than you.  
+― Socrates  
