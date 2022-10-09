@@ -785,3 +785,6 @@ It's not what happens to you, but how you react to it that matters.
 
 I am a fool, but I know I'm a fool and that makes me smarter than you.  
 ― Socrates  
+
+Courage is resistance to fear, mastery of fear, not absence of fear.  
+― Mark Twain  
