@@ -788,3 +788,6 @@ I am a fool, but I know I'm a fool and that makes me smarter than you.
 
 Courage is resistance to fear, mastery of fear, not absence of fear.  
 ― Mark Twain  
+
+Where there are sheep, the wolves are never very far away.  
+― Plautus  
