@@ -791,3 +791,6 @@ Courage is resistance to fear, mastery of fear, not absence of fear.
 
 Where there are sheep, the wolves are never very far away.  
 ― Plautus  
+
+All we have to decide is what to do with the time that is given us.  
+― J. R. R. Tolkien  
