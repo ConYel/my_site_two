@@ -794,3 +794,6 @@ Where there are sheep, the wolves are never very far away.
 
 All we have to decide is what to do with the time that is given us.  
 ― J. R. R. Tolkien  
+
+A person often meets his destiny on the road he took to avoid it.  
+― Jean de La Fontaine  
