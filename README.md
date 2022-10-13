@@ -797,3 +797,6 @@ All we have to decide is what to do with the time that is given us.
 
 A person often meets his destiny on the road he took to avoid it.  
 ― Jean de La Fontaine  
+
+You can never have an impact on society if you have not changed yourself.  
+― Nelson Mandela  
