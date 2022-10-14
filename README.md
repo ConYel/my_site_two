@@ -800,3 +800,6 @@ A person often meets his destiny on the road he took to avoid it.
 
 You can never have an impact on society if you have not changed yourself.  
 ― Nelson Mandela  
+
+What you can't imagine, you can't discover.  
+― Albert Einstein  
