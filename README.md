@@ -803,3 +803,6 @@ You can never have an impact on society if you have not changed yourself.
 
 What you can't imagine, you can't discover.  
 ― Albert Einstein  
+
+Let us be grateful to the mirror for revealing to us our appearance only.  
+― Samuel Butler  
