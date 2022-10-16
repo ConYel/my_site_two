@@ -806,3 +806,6 @@ What you can't imagine, you can't discover.
 
 Let us be grateful to the mirror for revealing to us our appearance only.  
 ― Samuel Butler  
+
+The opinion of 10,000 men is of no value if none of them know anything about the subject.  
+― Marcus Aurelius  
