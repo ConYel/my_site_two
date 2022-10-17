@@ -809,3 +809,6 @@ Let us be grateful to the mirror for revealing to us our appearance only.
 
 The opinion of 10,000 men is of no value if none of them know anything about the subject.  
 ― Marcus Aurelius  
+
+Follow the argument wherever it leads.    
+― Socrates  
