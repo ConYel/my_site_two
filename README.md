@@ -812,3 +812,6 @@ The opinion of 10,000 men is of no value if none of them know anything about the
 
 Follow the argument wherever it leads.    
 ― Socrates  
+
+Thinking is difficult, that’s why most people judge.  
+― Carl Jung  
