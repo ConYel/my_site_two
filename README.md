@@ -815,3 +815,6 @@ Follow the argument wherever it leads.
 
 Thinking is difficult, that’s why most people judge.  
 ― Carl Jung  
+
+Wherever there is a crowd there is untruth.  
+― Soren Kierkegaard  
