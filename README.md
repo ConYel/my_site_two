@@ -818,3 +818,6 @@ Thinking is difficult, that’s why most people judge.
 
 Wherever there is a crowd there is untruth.  
 ― Soren Kierkegaard  
+
+There's no shame in failing. The only shame is not giving things your best shot.  
+― Robin Williams  
