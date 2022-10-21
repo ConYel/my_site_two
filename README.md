@@ -821,3 +821,6 @@ Wherever there is a crowd there is untruth.
 
 There's no shame in failing. The only shame is not giving things your best shot.  
 ― Robin Williams  
+
+The minute you begin to do what you really want to do, it's really a different kind of life.  
+― R. Buckminster Fuller  
