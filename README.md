@@ -824,3 +824,6 @@ There's no shame in failing. The only shame is not giving things your best shot.
 
 The minute you begin to do what you really want to do, it's really a different kind of life.  
 ― R. Buckminster Fuller  
+
+Absence, the highest form of presence.  
+― James Joyce  
