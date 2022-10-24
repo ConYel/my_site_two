@@ -827,3 +827,6 @@ The minute you begin to do what you really want to do, it's really a different k
 
 Absence, the highest form of presence.  
 ― James Joyce  
+
+The welfare of the people in particular has always been the alibi of tyrants.  
+― Albert Camus  
