@@ -830,3 +830,6 @@ Absence, the highest form of presence.
 
 The welfare of the people in particular has always been the alibi of tyrants.  
 ― Albert Camus  
+
+Whoever controls the media, controls the mind.  
+― Jim Morrison  
