@@ -833,3 +833,6 @@ The welfare of the people in particular has always been the alibi of tyrants.
 
 Whoever controls the media, controls the mind.  
 ― Jim Morrison  
+
+You've got to expect things are going to go wrong. And we always need to prepare ourselves for handling the unexpected.  
+― Neil Armstrong  
