@@ -836,3 +836,6 @@ Whoever controls the media, controls the mind.
 
 You've got to expect things are going to go wrong. And we always need to prepare ourselves for handling the unexpected.  
 ― Neil Armstrong  
+
+While living I want to live well.  
+― Geronimo  
