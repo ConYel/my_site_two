@@ -839,3 +839,6 @@ You've got to expect things are going to go wrong. And we always need to prepare
 
 While living I want to live well.  
 ― Geronimo  
+
+The stars in the heavens sing a music, if only we had ears to hear.  
+― Pythagoras  
