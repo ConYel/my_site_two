@@ -842,3 +842,6 @@ While living I want to live well.
 
 The stars in the heavens sing a music, if only we had ears to hear.  
 ― Pythagoras  
+
+Start with what is right rather than what is acceptable.  
+― Franz Kafka  
