@@ -845,3 +845,6 @@ The stars in the heavens sing a music, if only we had ears to hear.
 
 Start with what is right rather than what is acceptable.  
 ― Franz Kafka  
+
+A drop of ink may make a million think.  
+― Lord Byron  
