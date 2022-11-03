@@ -848,3 +848,6 @@ Start with what is right rather than what is acceptable.
 
 A drop of ink may make a million think.  
 ― Lord Byron  
+
+There is nothing so confining as the prisons of our own perceptions.  
+― William Shakespeare  
