@@ -851,3 +851,6 @@ A drop of ink may make a million think.
 
 There is nothing so confining as the prisons of our own perceptions.  
 ― William Shakespeare  
+
+From the errors of others, a wise man corrects his own.  
+― Publilius Syrus  
