@@ -854,3 +854,6 @@ There is nothing so confining as the prisons of our own perceptions.
 
 From the errors of others, a wise man corrects his own.  
 ― Publilius Syrus  
+
+After the event, even a fool is wise.  
+― Homer  
