@@ -857,3 +857,6 @@ From the errors of others, a wise man corrects his own.
 
 After the event, even a fool is wise.  
 ― Homer  
+
+Everyone thinks of changing the world, but no one thinks of changing himself.  
+― Leo Tolstoy  
