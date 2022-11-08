@@ -860,3 +860,6 @@ After the event, even a fool is wise.
 
 Everyone thinks of changing the world, but no one thinks of changing himself.  
 ― Leo Tolstoy  
+
+Fortune never helps the fainthearted.  
+― Sophocles  
