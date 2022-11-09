@@ -863,3 +863,6 @@ Everyone thinks of changing the world, but no one thinks of changing himself.
 
 Fortune never helps the fainthearted.  
 ― Sophocles  
+
+From a real antagonist one gains boundless courage.  
+― Franz Kafka  
