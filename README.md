@@ -866,3 +866,6 @@ Fortune never helps the fainthearted.
 
 From a real antagonist one gains boundless courage.  
 ― Franz Kafka  
+
+Sir,' I said to the universe, 'I exist.' 'That,' said the universe, 'creates no sense of obligation in me whatsoever.  
+― Douglas Adams  
