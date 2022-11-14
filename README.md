@@ -869,3 +869,6 @@ From a real antagonist one gains boundless courage.
 
 Sir,' I said to the universe, 'I exist.' 'That,' said the universe, 'creates no sense of obligation in me whatsoever.  
 ― Douglas Adams  
+
+Fiction gives us empathy: it puts us inside the minds of other people, gives us the gifts of seeing the world through their eyes. Fiction is a lie that tells us true things, over and over.  
+― Neil Gaiman  
