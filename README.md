@@ -872,3 +872,6 @@ Sir,' I said to the universe, 'I exist.' 'That,' said the universe, 'creates no 
 
 Fiction gives us empathy: it puts us inside the minds of other people, gives us the gifts of seeing the world through their eyes. Fiction is a lie that tells us true things, over and over.  
 ― Neil Gaiman  
+
+The only thing necessary for the triumph of evil is for good men to do nothing.  
+― Edmund Burke   
