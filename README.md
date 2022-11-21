@@ -875,3 +875,6 @@ Fiction gives us empathy: it puts us inside the minds of other people, gives us 
 
 The only thing necessary for the triumph of evil is for good men to do nothing.  
 ― Edmund Burke   
+
+The first step to expanding your reality is to discard the tendency to exclude things from possibility.  
+― e. e. cummings  
