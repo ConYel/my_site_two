@@ -878,3 +878,6 @@ The only thing necessary for the triumph of evil is for good men to do nothing.
 
 The first step to expanding your reality is to discard the tendency to exclude things from possibility.  
 ― e. e. cummings  
+
+It is easier for the world to accept a simple lie than a complex truth.  
+― Alexis de Tocqueville  
