@@ -1,0 +1,20 @@
+- rOpenSci 
+- NPOS Multi Annual Plan
+- Preregistration
+- Citation Gecko & Open Access Button
+- Unpaywall
+- Zenodo
+- protocols.io
+- figshare
+- ORCHID
+- Dryad
+- Open citations
+- Science Open
+- Web of research
+- Secondary publishing Rights
+- Semantic Scholar
+- Open Knowledge Maps
+- Adopting Open Science, general informations
+- Scholarly Communication, general information
+- FAIR data principles
+- Open data, OSF registries
